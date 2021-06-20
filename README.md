@@ -4,3 +4,4 @@
 - 💞️ I’m looking to collaborate on ... (huh?)
 - 📫 you can send e-main on mangto0701@gmail.com
 - And,, you can use my code!! (for only own use, not commercial)
+- 글이고, 한쿡인이 이걸 읽으면 잼있겠댜 라는 생각이 드네요
