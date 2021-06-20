@@ -1,0 +1,6 @@
+- 👋 Hi, I’m mangomangto, individual developer (*student)
+- 👀 I’m interested in python
+- 🌱 I’m currently learning deep-learning but it's hard
+- 💞️ I’m looking to collaborate on ... (huh?)
+- 📫 you can send e-main on mangto0701@gmail.com
+- And,, you can use my code!! (for only own use, not commercial)
