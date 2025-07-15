@@ -24,6 +24,6 @@
 <div align="center">
   <div>
     <h4>#현생에 #치어사는 #고딩 #🥕</h4>
-    <h4>High School 2nd Grade In Korea</h4>
+    <h4>High School 3rd Grade In Korea</h4>
   </div>
 </div>
